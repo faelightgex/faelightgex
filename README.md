@@ -1,3 +1,8 @@
 let's kill this greedy fae 👿👿👿
-![lee'sfaelight](https://github.com/faelightgex/faelightgex/blob/8cd51629bceb741101551b71396a64fbb8b8ec21/leefl.png)
-(fl by lee ilobeyew)
+<p align="center">
+  <img src="https://files.catbox.moe/3bczvq.png](https://files.catbox.moe/xnh8x1.png" width=500px >  
+</p>
+
+<p align="center">
+faelight by lee i love yew chus
+</p>
