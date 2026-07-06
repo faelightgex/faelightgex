@@ -1,3 +1,3 @@
 let's kill this greedy fae 👿👿👿
-![lee'sfaelight](https://github.com/faelightgex/faelightgex/blob/386408d10f5eef1fb24ec5a362c7c2a888240e7f/leefaelight.png)
+![lee'sfaelight](https://github.com/faelightgex/faelightgex/blob/8cd51629bceb741101551b71396a64fbb8b8ec21/leefl.png)
 (fl by lee ilobeyew)
