@@ -7,7 +7,7 @@ let's kill this greedy fae 👿👿👿
 faelight by lee i love yew chus
 </p>
 <p align="center">
-afk/offtab often w2i!!!
+afk/offtab often w2i! i un/hide FREELY, move on!
 </p>
 <p align="center">
 any int & ships (unless in dni), c+h enc anytime w/ me!
