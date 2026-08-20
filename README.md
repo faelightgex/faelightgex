@@ -13,5 +13,5 @@ afk/offtab often w2i! i un/hide FREELY, move on!
 any int & ships (unless in dni), c+h enc anytime w/ me!
 </p>
 <p align="center">
-  <a  href="https://rentry.co/faelightholic">read byi!<3</a>⠀⠀⠀⠀⠀⠀
+  <a  href="https://fluffle.cc/faelightholic">read byi!<3</a>⠀⠀⠀⠀⠀⠀
      <a  href="https://faelightgex.atabook.org">sign ata!<3</a>
