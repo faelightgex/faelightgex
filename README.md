@@ -1,10 +1,10 @@
 <p align="center">
-let's kill this greedy fae 👿👿👿
+faelight by lee i love yew chus
 <p align="center">
   <img src="https://files.catbox.moe/xnh8x1.png" width=400px >  
 </p>
 <p align="center">
-faelight by lee i love yew chus
+i'm easy to get along w/ but read my dni i beg
 </p>
 <p align="center">
 afk/offtab often w2i! i un/hide FREELY, move on!
