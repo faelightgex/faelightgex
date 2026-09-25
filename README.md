@@ -1,7 +1,7 @@
 <p align="center">
 faelight by lee i love yew chus
 <p align="center">
-  <img src="https://i.imgur.com/l1kRfD4.png" width=400px >  
+  <img src="https://i.imgur.com/UwDBSGn.png" width=400px >  
 </p>
 <p align="center">
 any int & ships, c+h enc anytime w/ me!
